@@ -1,1 +1,1 @@
-# waitlist
+# SKOOL
